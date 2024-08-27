@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @G3MW0LF
+- 👀 I’m interested in coding, and gaming
+- 📫 How to reach me ...
+- 😄 Pronouns: He, him, they, and them
+- ⚡ Fun fact: I love Gaming!
